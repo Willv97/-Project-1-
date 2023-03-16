@@ -1,0 +1,1 @@
+I'm not sure anymore. In the best I only pictured a bright future where I was uber suycessful and could take care of family and friends. Now Im trying to find a new path to achieve that type of success.
